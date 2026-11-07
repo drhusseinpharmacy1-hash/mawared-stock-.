@@ -1,1 +1,1 @@
-# mawared-stock-.
+# mawared-stock
